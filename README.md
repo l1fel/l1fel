@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @l1fel
+- 👀 I’m interested in Creating Servers
+- 🌱 I’m currently learning Java
+- 📫 How to reach me - Discord [dnxdane#7777]
